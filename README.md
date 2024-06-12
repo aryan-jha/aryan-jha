@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)](https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)
+[![MasterHead](https://www.canva.com/design/DAGH9csRj8Y/y_Y9oopIwuBNShLxQaM73g/watch?utm_content=DAGH9csRj8Y&utm_campaign=designshare&utm_medium=link&utm_source=editor)](https://www.canva.com/design/DAGH9csRj8Y/y_Y9oopIwuBNShLxQaM73g/watch?utm_content=DAGH9csRj8Y&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 <h1 align="center">Hi 👋, I'm Aryan Jha</h1>
 <h3 align="center">A passionate Android developer</h3>
