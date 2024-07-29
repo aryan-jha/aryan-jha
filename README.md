@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Android Development**
 
-- 📫 How to reach me **https://www.linkedin.com/in/aryan--jha/**
+- 📫 How to reach me **aryanjha557@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
